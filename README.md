@@ -16,4 +16,4 @@ Here are some ideas to get you started:
 
 :wave: [Profile](https://moored-pilot-de6.notion.site/7897b177208e447bbecece6b80e17246)
 
-:pencil2: [Blog]() (추후 업데이트 예정)
+:pencil2: [Blog](https://velog.io/@3eonah) 
